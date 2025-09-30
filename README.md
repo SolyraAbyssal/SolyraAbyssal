@@ -1,9 +1,5 @@
   <p>
   <a href="https://ibb.co/whjKG7jC">
-    <img src="https://i.ibb.co/whjKG7jC/Untitled113.png" alt="Untitled113" width="1200">
-  </a>
-</p>
-<h1 align ="center">Thx 4 70+ Followers!! (＾＾)// 
-</h1>
+    <img src="https://i.ibb.co/7N8WdM7r/Untitled125.png" alt="Untitled125" width="100%">
 
 <p align="center"> Also I made this drawing! so free to request me if wanted! also got inspired from Pinterest!! 
