@@ -1,7 +1,7 @@
   <p>
   <a href="http://i.ibb.co/ymrF81PS/MW-x-Mikeyy-1.png">
-  <img src="http://i.ibb.co/ymrF81PS/MW-x-Mikeyy-1.png" alt="MW x Mikeyy" width="600℅">
-</a> 
+  <img src="http://i.ibb.co/ymrF81PS/MW-x-Mikeyy-1.png" alt="MW x Mikeyy" width="1200">
+</a>
 
 <p align="center"> Also I made this drawing with @xMikeyy !! ❤
 
